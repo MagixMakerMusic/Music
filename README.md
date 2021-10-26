@@ -14,7 +14,7 @@
 
 ## Revolutionary Music Maker Instruments and Technologies Powers Music Creation Super Powers.
 
-## [⚡️Music Maker Download](https://bit.ly/2XDEfhg)
+## [⚡️Music Maker Download](https://bit.ly/3EmAyfx)
 * 3 Soundpools of your choice 
 * 1 Soundpool Collection of your choice 
 * 3 MAGIX instruments of your choice 
@@ -27,5 +27,5 @@
 * New: Song parts 
 * New: coreFX VolumeFormer
 * New: VST Bridge Orange Vocoder ME LIMITED-TIME BONUS: SOUND FORGE Audio Studio 12
-## [Contract And Video Download](https://bit.ly/2ZtB38O)
+## [Contract And Video Download](https://bit.ly/3CkDM2z)
 Read more: https://www.magix.com/int/music/music-maker/
